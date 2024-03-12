@@ -1,4 +1,7 @@
 - 👋 Hi, I’m future Billioner.
 - 
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 👀The Future Billionaire
+-
+-😃This name will stay in history ...
+- 🌱 I’m Future creator of new civilization (new apss and Hotel in ...)
+- 
