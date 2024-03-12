@@ -1,6 +1,5 @@
 - 👋 Hi, I’m future Billioner.
-- 
-- 👀The Future Billionaire
+- 👀it Means The Future Billionaire or this time not future maybe
 -😃This name will stay in history ...
 - 🌱 I’m Future creator of new civilization (new apss and Hotel in ...)
-- 
+- AN!$AJ0N
