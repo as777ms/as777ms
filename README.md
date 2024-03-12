@@ -1,7 +1,6 @@
 - 👋 Hi, I’m future Billioner.
 - 
 - 👀The Future Billionaire
--
 -😃This name will stay in history ...
 - 🌱 I’m Future creator of new civilization (new apss and Hotel in ...)
 - 
