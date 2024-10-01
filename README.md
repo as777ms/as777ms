@@ -1,4 +1,4 @@
-# Hi there, I'm Anisa! 👋
+# Hi there! 👋
 
 Welcome to my GitHub profile! I'm a passionate developer with a love for building web applications and exploring new technologies. I'm always learning and growing, and I'm excited to share my journey with you.
 
