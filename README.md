@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there I am Anisa! 👋<br>Welcome to my GitHub profile! I'm a passionate developer with a love for building web applications and exploring new technologies. I'm always learning and growing, and I'm excited to share my journey with you.<br><br>🚀 About Me<br>I'm skilled in various programming languages and web technologies, and I enjoy creating clean, efficient, and visually appealing projects. When I'm not coding, you can find me exploring new tech trends, contributing to open-source projects, or diving into the latest coding challenges.
+Hi there I am Anisa! 👋<br>Welcome to my GitHub profile! I'm a passionate developer with a love for building web applications and exploring new technologies. I'm always learning and growing, and I'm excited to share my journey with you.<br><br>🚀 About Me<br>I'm skilled in various programming languages and web technologies, and I enjoy creating clean, efficient, and visually appealing projects. When I'm not coding, you can find me exploring new tech trends,learning a language, contributing to open-source projects, or diving into the latest coding challenges.
 
 
 ## 🌐 Socials:
